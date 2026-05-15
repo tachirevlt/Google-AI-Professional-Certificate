@@ -9,3 +9,5 @@ It feels great to stay ahead of the curve. If you’ve been thinking about learn
 recommend checking this out: grow.google/AIcert
 
 #GrowWithGoogle #GoogleAI #NewSkills #ProudMomentent
+
+https://coursera.org/share/9b5d96b93f12b5baa41b9276e65cb41f
